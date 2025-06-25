@@ -12,5 +12,5 @@
   🧷 <a href="https://en.pronouns.page/@deeryvo1" target="_blank">prns page</a>
 </p>
 <p align="center">
-  ⋆.˚ <a href="https://rentry.co/deeryvosstuff" target="_blank">rentry</a>
+  🔗 <a href="https://rentry.co/deeryvosstuff" target="_blank">rentry</a>
 </p>
