@@ -6,4 +6,9 @@
 ⸝⸝ C+H is encouraged!! ´◡` ノ pls whisper byi since im offtab a lot 
     <p align="center">
 ->⋆.˚ :-7 pls int i need friends, grr ⸝⸝⸝
-[rentry](https://rentry.com/deeryvosstuff) . [prns page](https://en.pronouns.page/@deeryvo1)
+<p align="center">
+  🧷 <a href="https://en.pronouns.page/@deeryvo1" target="_blank">prns page</a>
+</p>
+<p align="center">
+  ⋆.˚ <a href="https://rentry.co/deeryvosstuff" target="_blank">rentry</a>
+</p>
