@@ -1,6 +1,7 @@
 ## blehh!!
-![](https://i.pinimg.com/736x/05/92/19/059219c4101b2716de027ebc52f252a3.jpg)
 <p align="center">
+  <img src="https://i.pinimg.com/736x/05/92/19/059219c4101b2716de027ebc52f252a3.jpg" alt="deer" width="400" />
+</p>
 ────୨ৎ────
   <p align="center">
 ⸝⸝ C+H is encouraged!! ´◡` ノ pls whisper byi since im offtab a lot 
