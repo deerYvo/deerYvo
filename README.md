@@ -15,5 +15,5 @@
   🔗 <a href="https://rentry.co/deeryvosstuff" target="_blank">rentry</a>
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/d28d8146e48e6fb62f94519e04f72a67/1308d9e078ff6f3d-9f/s500x750/d3c09c0ec433838fccaa730d17decfdaa0085c53.pnj" alt="deer" width="700" />
+  <img src="https://64.media.tumblr.com/d28d8146e48e6fb62f94519e04f72a67/1308d9e078ff6f3d-9f/s500x750/d3c09c0ec433838fccaa730d17decfdaa0085c53.pnj" alt="deer" width="500" />
 </p>
