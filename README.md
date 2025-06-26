@@ -8,9 +8,9 @@
   <p align="center">
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   <p align="center">
-⸝⸝ C+H is encouraged!! ´◡` ノ゛ ⸝⸝.ᐟ⋆ pls whisper byi since im offtab a lot ¬_¬"
+⸝⸝ ╰┈➤ C+H is encouraged!! ´◡` ノ゛ ⸝⸝.ᐟ⋆ pls whisper byi since im offtab a lot ¬_¬"
     <p align="center">
-⋆.˚:-7 pls int i need friends, grr ⸝⸝⸝
+⋆.˚╰┈➤ :-7 pls int i need friends, grr ⸝⸝⸝
 <p align="center">
   🧷 <a href="https://en.pronouns.page/@deeryvo1" target="_blank">prns page</a>
 </p>
