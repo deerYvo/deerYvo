@@ -8,7 +8,7 @@
   <p align="center">
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   <p align="center">
-⸝⸝ ╰┈➤ C+H is encouraged!! ´◡` unless i dont wear "C+H" in my name :-( ノ゛ 
+⸝⸝ ╰┈➤ C+H is encouraged!! ´◡` unless i dont wear "C+H" in my name or stated otherwise :-( ノ゛ 
     <p align="center">
    ╰┈➤ ⸝⸝.ᐟ⋆ pls whisper byi since im offtab a lot ¬_¬"
     <p align="center">
