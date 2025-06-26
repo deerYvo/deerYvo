@@ -6,9 +6,9 @@
   <img src="https://i.pinimg.com/736x/e2/15/05/e2150542397d82a457b2395ac7f8f5d7.jpg" alt="deer" width="350" />
 </p>
   <p align="center">
-────୨ৎ────────────୨ৎ────────୨ৎ────────
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   <p align="center">
-⸝⸝ C+H is encouraged!! ´◡` ノ pls whisper byi since im offtab a lot ¬_¬"
+⸝⸝ C+H is encouraged!! ´◡` ノ゛ ⸝⸝.ᐟ⋆ pls whisper byi since im offtab a lot ¬_¬"
     <p align="center">
 ⋆.˚:-7 pls int i need friends, grr ⸝⸝⸝
 <p align="center">
