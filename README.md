@@ -1,9 +1,12 @@
 ## blehh!!
 <p align="center">
+  <img src="https://64.media.tumblr.com/d28d8146e48e6fb62f94519e04f72a67/1308d9e078ff6f3d-9f/s500x750/d3c09c0ec433838fccaa730d17decfdaa0085c53.pnj" alt="deer" width="500" />
+</p>
+<p align="center">
   <img src="https://i.pinimg.com/736x/05/92/19/059219c4101b2716de027ebc52f252a3.jpg" alt="deer" width="400" />
 </p>
   <p align="center">
-────୨ৎ────
+────୨ৎ────────────୨ৎ────────୨ৎ────────
   <p align="center">
 ⸝⸝ C+H is encouraged!! ´◡` ノ pls whisper byi since im offtab a lot 
     <p align="center">
