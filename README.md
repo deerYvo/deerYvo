@@ -3,12 +3,12 @@
   <img src="https://64.media.tumblr.com/d28d8146e48e6fb62f94519e04f72a67/1308d9e078ff6f3d-9f/s500x750/d3c09c0ec433838fccaa730d17decfdaa0085c53.pnj" alt="deer" width="500" />
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/736x/e2/15/05/e2150542397d82a457b2395ac7f8f5d7.jpg" alt="deer" width="350" />
+  <img src="https://i.pinimg.com/736x/27/94/07/2794070b726edcc0e68421a7f4fedea6.jpg" alt="deer" width="350" />
 </p>
   <p align="center">
-. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+⑅ ◟ ͜ ◞ ⑅ ◟ ୨୧ ◞ ⑅ ◟ ͜ ◞ ⑅
   <p align="center">
-⸝⸝ ╰┈➤ C+H is encouraged!! ´◡` unless i dont wear "C+H" in my name or stated otherwise :-( ノ゛ 
+⸝⸝ ╰┈➤ ꗯ C+H is encouraged!! ´◡` ⟡.· unless i dont wear "C+H" in my name or stated otherwise :-( ノ゛ 
     <p align="center">
    ╰┈➤ ⸝⸝.ᐟ⋆ pls whisper byi since im offtab a lot ¬_¬"
     <p align="center">
