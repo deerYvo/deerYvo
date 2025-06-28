@@ -1,4 +1,14 @@
 ## blehh!!
 <p align="center">
-  <img src="https://i.pinimg.com/736x/97/6f/5e/976f5e984ac6263a12c99c7db13b4427.jpg" alt="deer" width="500" />
+  <a href="https://deeryvos.carrd.co/">carrd</a><br> . 
+  <a href="https://en.pronouns.page/@deeryvo1">prns page</a><br>
+</p>
+<p align="center">
+⤷ 𓏵 C+H at anytime!! ノ always whisper byi since im offtab a lot 〃
+</p>
+<p align="center">
+⤷ pls int, i need friends 
+</p>
+<p align="center">
+  <img src="https://i.pinimg.com/736x/5b/0d/bf/5b0dbfce40a58f06c9ee1f1058b83549.jpg" alt="frank" width="400"/>
 </p>
