@@ -2,6 +2,7 @@
 <p align="center">
   <a href="https://deeryvos.carrd.co/">carrd</a> |
   <a href="https://en.pronouns.page/@deeryvo1">prns page</a> |
+  <a href="https://www.roblox.com/users/8408466806/profile">rblx</a>
 </p>
 <p align="center">
 ⤷ 𓏵 C+H at anytime!! ノ always whisper byi since im offtab a lot 〃
