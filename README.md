@@ -6,7 +6,7 @@
   <a href="https://audiomack.com/healingsoul690/likes">audiomack</a>
 </p>
 <p align="center">
-⤷ 𓏵 C+H at anytime!! ノ always whisper byi since im offtab a lot 〃
+⤷ 𓏵 C+H at anytime!! unless i don't have C+H in my name :-(( ノ always whisper byi since im offtab a lot 〃
 </p>
 <p align="center">
 ⤷ pls int, i need friends (ˉ﹃ˉ)
