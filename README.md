@@ -15,7 +15,7 @@
 ────୨ৎ────
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/736x/5b/0d/bf/5b0dbfce40a58f06c9ee1f1058b83549.jpg" alt="frank" width="500"/>
+  <img src="https://i.pinimg.com/736x/21/67/16/2167167bcf48db5b47b8515a8cdd1f8d.jpg" alt="deers" width="500"/>
 </p>
 <p align="center">
   "i couldn't gague your fears..."
