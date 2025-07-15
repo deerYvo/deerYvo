@@ -16,6 +16,4 @@
 <p align="center">
   <img src="https://i.pinimg.com/736x/ab/b6/d2/abb6d202b98762afc92d5b0aee1af81c.jpg" alt="deers" width="400"/>
 </p>
-<p align="center">
-  "i couldn't gague your fears..."
-</p>
+
